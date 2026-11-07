@@ -1,1 +1,1 @@
-AI researcher & Machine Learningist
+AI researcher & Machine Learning Engineer
