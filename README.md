@@ -1,1 +1,1 @@
-Where curiosity > Age begins.
+AI researcher & Machine Learningist
